@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CoolProgrammer212
-- 👀 I’m interested in Mathematics, Pure Physics and Chemistry, and of course, Programming!
+- 👀 I’m interested in Mathematics, Pure Physics and Chemistry, and of course, Programming! I also like to watch Cricket and Formula 1!
 - 🌱 I’m currently learning Python and looking forward to learn Java, Javascript, C, and C++
 - 💞️ I’m looking to collaborate on major projects that can benefit the modern world in various ways!
 - 📫 How to reach me: Email- biswalmanvik7@gmail.com Discord- justchill_212
